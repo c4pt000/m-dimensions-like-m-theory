@@ -4,6 +4,10 @@ in response to this
 https://www.popularmechanics.com/science/a61021621/is-time-just-an-illusion/
 
 
+my interdimensional theories and partial theories of parallel timelines that exist inside of singular big bang events
+
+but big bang events are parallel universes
+
 we exist as Human beings in a 4th dimensional reality as 3 dimensional organisms 
 
 LxWxH for 3 dimensions 
