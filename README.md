@@ -115,7 +115,10 @@ our big bang is one of many 4th dimensional constructs that form inside of our k
 to travel to another universe outside of this universe it would require staying fixed in one spot in time and space without traveling anywhere at all
 and exiting into the 5th dimension then into the 6th dimension
 
-where each object in 6th dimensional space is a blinking micro pin head of an expanding 5th dimensional universe as a construct with many many many 4th dimensional vectors
+
+more than one universe "parallel universes"
+
+where each object in 6th dimensional space is a blinking micro pin head of an expanding alternative parallel universe as a string of many configurations 5th dimensional space contaning many 4th dimensional possiblities as a construct with many many many 4th dimensional vectors
 
 
 
