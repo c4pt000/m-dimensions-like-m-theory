@@ -38,8 +38,20 @@ if we exited out of the 5th dimension and entered into the 6th dimension to trav
 
 trying to travel back to our 5th dimensional universe inside of the higher ordinal 6th dimension
 
-every possible parllel universe would appear lke a speck of light where each speck of light is actually a 5th dimensional construct with many many 4th dimensional possiblities existing inside of it)
+every possible parllel universe would appear like a speck of light where each speck of light is actually a 5th dimensional construct 
+with many many 4th dimensional possiblities inside of our universe existing inside of it)
+
+our universe as we know it 5th dimensional with many braches of 4th dimensional possiblites 
 to travel through many 4th dimensional possiblities to get back to our timeline of our known 4th dimensional time space the way we experience reality now all of our lives
+
+
+think of it like this with modern space travel
+when traveling 4th dimensions through space with a rocket and traveling 10 light years or really really far into space
+imagine the depths of space and every single surrounding star in the depths of space............. which one............ is our star to get back to .....to get back to earth that we left from as our orign 
+because every tiny speck of distant star light of trillions of stars all look and appear the same
+
+
+
 
 
 
