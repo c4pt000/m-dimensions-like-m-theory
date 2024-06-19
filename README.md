@@ -29,7 +29,7 @@ the problem is entering the 5th dimension and trying to go back to the same poin
 
 because entering the 5th dimension the 4th dimension branches into n-th amount of parallel 4th dimenional possiblites of different would be events that took place or didnt take place as a confusing almost seemly infinite (but not actually infinite set of events)
 
-imagine this we exit the 4th dimension to and enter the 5th dimension in order to travel forward or backwards at future or previous datetime
+imagine this.... we exit the 4th dimension to and enter the 5th dimension in order to travel forward or backwards at future or previous datetime
 
 it would appear like each 4th dimensional possibility to re enter into would look like time lapse streaks and blurbs of events
 
