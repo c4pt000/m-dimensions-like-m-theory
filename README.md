@@ -86,6 +86,32 @@ and the universe expands from the big bang and after trillions of years when ALL
 
 
 
+SO IN 6th dimensional space there are many many big bang specks and each big bang speck of energy is one of many parallel univeres each individual universe is comprised of its own 5th dimensional construct and inside of the 5th dimensional construct is many many many parallel 4th dimensional consructs 
+
+our reality that we know day to day slowing moving about our business and day to day personal lives and other things we do day to day
+
+we are living in a 4th dimensional construct of time being a dimension and space being 3 dimensions
+
+our reality is a 4th dimensional construct
+
+our universe is a 5th dimensional construct which contains many many many many 4th dimensional constructs of parallel temporal space almost as many different versions AS TOO MANY 1000^100 beyond a gololplex^100 ALOT 
+I DONT KNOW PERSONALLY BUT ALOT
+
+our 4th dimensional view of reality and every known fixed star with its fixed orbiting planets are part of our 4th dimensional construct of day to day life 
+
+
+our 4th dimensional reality is part of our same local group of stars including our Sun in the sky 8 light minutes away part of our same 4th dimensional construct and andromeda galaxy 100 billion light years away the same 4th dimensional construct that we exist in is also part of our 4th dimensional constuct as we exist in reality and go through day to day life one day at a time as human organisms
+
+
+
+
+ee.
+
+but our universe contains many many many many unique and different 5th dimensional contructs that have unique patterns of 4th dimensional constructs of everything in with the way that each one of those formed stars and planets
+
+so the way the big bang formed and moved around and formed our star and earth 4.5 billion years ago
+
+is not the way other almost infintley seemlying never 
 
 DH.Weinberg
 06-18-2024 5pm Mountain Standard Time
