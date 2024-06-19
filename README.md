@@ -18,6 +18,7 @@ the universe is mostly 5 dimensions starting from a 4th dimensional timeline fro
 where everything we perceive including ourselves are existent in 3 dimensions of physical realm and beyond
 
 traveling between different parallel universes would require exiting from 4th dimensional timespace into higher order 5th dimensional space (where time can be traversed to a different forward or backwards temporal event)
+diagramh
 
 but the problem with entering the 5th dimension to travel to a different day and time in our known 4th dimension of our version of earth as we know it from our origin of leaving the 4th dimension to enter into the realm of the 5th dimension
 
