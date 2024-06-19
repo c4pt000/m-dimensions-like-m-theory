@@ -27,7 +27,7 @@ traveling back either forward or backwards to our timeline would be 1000x more c
 
 the problem is entering the 5th dimension and trying to go back to the same point of our known timeline where we left from would be so confusing to pinpoint
 
-because entering the 5th dimension the 4th dimension branches into n-th amount of parallel 4th dimenional possiblites of different would be events that took place or didnt take place as a confusing almost seemly infinite (but not actually infinite)
+because entering the 5th dimension the 4th dimension branches into n-th amount of parallel 4th dimenional possiblites of different would be events that took place or didnt take place as a confusing almost seemly infinite (but not actually infinite set of events)
 
 imagine this we exit the 4th dimension to and enter the 5th dimension in order to travel forward or backwards at future or previous datetime
 
@@ -44,6 +44,6 @@ every possible parllel universe would appear lke a speak of light where each spe
 
 
 
-
-
+06-18-2024 5pm MST
+DH.Weinberg
 
