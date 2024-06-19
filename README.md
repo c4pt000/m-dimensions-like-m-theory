@@ -22,7 +22,7 @@ movement of the 4th dimension is also a form of movement but not measured in dis
 
 as it is always continually moving forward at a constant rate for the last 14.5 billion years since the beginning of this known universe-and-timeline of events of every known area of the known universe
 
-the universe is mostly 5 dimensions starting from a 4th dimensional timeline from OUR big bang of the beginning of our known universe being the starting point of our timeline not only for earth 4.5 billion years ago but the starting point of a 4th dimensional timeline of every known previous object that is or isnt still existent in our known universe
+the universe is mostly many many many many different versions of parallel 5th dimensional construct starting from a 4th dimensional timeline from OUR big bang of the beginning of our known universe being the starting point of our timeline not only for earth 4.5 billion years ago but the starting point of a 4th dimensional timeline of every known previous object that is or isnt still existent in our known universe
 where everything we perceive including ourselves are existent in 3 dimensions of physical realm and beyond
 
 traveling between different parallel universes would require exiting from 4th dimensional timespace into higher order 5th dimensional space (where time can be traversed to a different forward or backwards temporal event)
@@ -107,7 +107,19 @@ our 4th dimensional reality is part of our same local group of stars including o
 
 ee.
 
-but our universe contains many many many many unique and different 5th dimensional contructs that have unique patterns of 4th dimensional constructs of everything in with the way that each one of those formed stars and planets
+but our universe contains many many many many unique and different 4th dimensional contructs that have unique patterns of 4th dimensional constructs of everything in with the way that each one of those formed stars and planets
+but vastly different in how the expansion might or might not form certain stars or planets in the way we know our configuation of this 4th dimensional construct because each 4th dimensional construct of many of them form differently from the energy event where the 4th dimensional construct begins (time and matter expansion for billions of years)
+
+our big bang is one of many 4th dimensional constructs that form inside of our known 5th dimensional universe
+
+to travel to another universe outside of this universe it would require staying fixed in one spot in time and space without traveling anywhere at all
+and exiting into the 5th dimension then into the 6th dimension
+
+where each object in 6th dimensional space is a blinking micro pin head of an expanding 5th dimensional universe as a construct with many many many 4th dimensional vectors
+
+
+
+
 
 so the way the big bang formed and moved around and formed our star and earth 4.5 billion years ago
 
