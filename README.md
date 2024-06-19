@@ -38,7 +38,7 @@ if we exited out of the 5th dimension and entered into the 6th dimension to trav
 
 trying to travel back to our 5th dimensional universe inside of the higher ordinal 6th dimension
 
-every possible parllel universe would appear lke a speak of light where each speck of light is actually a 5th dimensional construct with many many 4th dimensional possiblities existing inside of it)
+every possible parllel universe would appear lke a speck of light where each speck of light is actually a 5th dimensional construct with many many 4th dimensional possiblities existing inside of it)
 
 
 
