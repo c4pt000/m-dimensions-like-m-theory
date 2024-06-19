@@ -56,7 +56,6 @@ because every tiny speck of distant star light of trillions of stars all look an
 
 
 
-
-06-18-2024 5pm MST
 DH.Weinberg
+06-18-2024 5pm Mountain Standard Time
 
