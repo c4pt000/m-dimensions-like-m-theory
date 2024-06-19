@@ -60,8 +60,18 @@ imagine the depths of space and every single surrounding star in the depths of s
 because every tiny speck of distant star light of trillions of stars all look and appear the same
 
 
+the density of exiting into the 6th dimension WOULD BE MORE DENSE THAN WHEN THE UNIVERSE WAS 13E48 th of a pico second old at the very instance
+
+when the big bang event of matter was almost infinitely dense and massive when the universe was the size of 1/100000000000 of a match head
 
 
+the 6th dimension is even more dense and massive than that
+
+and every pin prick of energy inside of the 6th dimension (which is every possible starting point of every possible alternative universe looks like specks of light like stars...
+
+but would appear like they are blinking on and off (to either exist or not exist as quantum states) and moving like they either did exist or never existed and expanded into long 5th dimensional constructs containg 4th dimensional timespace of stars and planets unique to each one
+
+the stars in the night sky are fixed and dont appear to be visually moving (even though some of them are non-existant due to the speed of light of traveling millions of years just to be visible AS WE PERCEIVE THE STARS WHERE SOME OF THE STARS A SMALL PERCENTAGE OF THEM SHINE LIGHT IN OUR NIGHT SKY BUT 0.000001 are not even physically remotely there anymore but viewing from here on earth it seems like its a physically visible star)
 
 
 DH.Weinberg
