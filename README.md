@@ -33,7 +33,7 @@ imagine this.... we exit the 4th dimension to and enter the 5th dimension in ord
 
 it would appear like each 4th dimensional possibility to re enter into would look like time lapse streaks and blurbs of events
 
-if we exited out of the 5th dimension and entered into the 6th dimension to travel parallel universes that take place along side of our own known universe (where each universe has a big bag starting point the size of a 1cm^ infinitely dense and massive event)
+if we exited out of the 5th dimension and entered into the 6th dimension to travel parallel universes that take place along side of our own known universe (where each universe has a big bang starting point the size of a 1cm^ infinitely dense and massive event)
 
 
 trying to travel back to our 5th dimensional universe inside of the higher ordinal 6th dimension
