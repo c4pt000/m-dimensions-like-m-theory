@@ -69,10 +69,24 @@ the 6th dimension is even more dense and massive than that
 
 and every pin prick of energy inside of the 6th dimension (which is every possible starting point of every possible alternative universe looks like specks of light like stars...
 
-but would appear like they are blinking on and off (to either exist or not exist as quantum states) and moving like they either did exist or never existed and expanded into long 5th dimensional constructs containg 4th dimensional timespace of stars and planets unique to each one
+but would appear like they are blinking on and off (to either exist or not exist as quantum states) and moving like they either did exist or never existed and expanded into long 5th dimensional constructs containg many many multiple 4th dimensional timespace of stars and planets unique to each one
 
 the stars in the night sky are fixed and dont appear to be visually moving (even though some of them are non-existant due to the speed of light of traveling millions of years just to be visible AS WE PERCEIVE THE STARS WHERE SOME OF THE STARS A SMALL PERCENTAGE OF THEM SHINE LIGHT IN OUR NIGHT SKY BUT 0.000001 are not even physically remotely there anymore but viewing from here on earth it seems like its a physically visible star)
 
+
+our universe started as the big bang 14.5 billion years ago our Star for earth formed 4.5 billion years ago and some random guess is that all of known matter anywhere in the known universe at the end of the universe's final expansion....... trillions of years from now gets recollected and compressed back into the size of tiny of speck of infinitely dense and infinitely massive object to expand again into the a slighy different universe out of many many many possible parallel universes existing as specks of light and energy inside of the construct of the 6th dimension 
+
+
+
+
+current grand cosmologists theorize that the known universe that we exist inside of with earth that the entire known universe beyond all known galaxies is shaped like a hyper torus (a repeating tublar shape
+
+think of a gigantic tube like a tube inside of a 10 speed bicycle tire but with a tight pinch on the tube the size of a pinhead which represents the starting point of the big bang when it was the size of a pin head  
+and the universe expands from the big bang and after trillions of years when ALL KNOWN FORMS OF MATTER DECAY AND FIZZLE OUT AND BREAK DOWN INTO THE VACUUM OF THE STARTING POINT OF THE HYPER TORUS TO RE EXAPND AGAIN AS AN INFINITE STARTING LOOP OF 5 DIMENSIONAL SPACE CONTAINING MANY MANY MANY 4TH DIMENSIONAL CONSTRUCTS INSIDE OF 1 5TH DIMENSIONAL SPACE OF OUR KNOWN UNIVERSE)
+
+dont laugh
+
+like adonut
 
 DH.Weinberg
 06-18-2024 5pm Mountain Standard Time
