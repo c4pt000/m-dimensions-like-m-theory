@@ -1,8 +1,8 @@
 # m-dimensions-like-m-theory
+# has nothing to do with looper-paradox
 
 in response to this
 https://www.popularmechanics.com/science/a61021621/is-time-just-an-illusion/
-has nothing to do with looper-paradox
 
 
 my interdimensional theories and partial theories of parallel timelines that exist inside of singular big bang eventsbut big bang events are parallel universes
